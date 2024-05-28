@@ -1,2 +1,3 @@
 # RAFFY-BASAL
 Hi there! Things you need to know about me. Enjoy!
+I am Raffy Basal, a results-driven Business Administration graduate with over 8 years of expertise in Logistics, Inventory Management, and Warehouse Operations. My passion lies in implementing practical strategies to enhance productivity, retain personnel, and optimize processes. Proficient in SAP, Oracle (Net Suite), and Microsoft Office, I bring strong leadership, communication, and organizational skills to drive success. Thanks!
